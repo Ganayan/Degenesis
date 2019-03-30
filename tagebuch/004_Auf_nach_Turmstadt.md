@@ -26,3 +26,12 @@ Wir entscheiden uns dagegen, noch vorher zum Chronisten zu gehen, und entscheide
 
 Auf dem Weg dahin sehen wir einen Checkpoint, der mit 6 Richtern besetzt ist. Wir umgehen ihn. Auf unserem abseitigen Pfad sehen wir nördlich von Nyx einige merkwürdige, riesige Baumartige Monumente die mit Bändern verbunden sind, lassen sie rechts liegen und erreichen am Abend des zweiten Reisetages erschöpft Turmstadt.
 
+Die Pollenbelastung ist ziemlich hoch, aber in Turmstadt - die aus einer Hand voll Häusern besteht, scheint ein Fest zu toben. Die Stadt selbst scheint in einen Haufen alter Urvölker-Überbleibsel gebaut zu sein (meist Fahrzeuge) - es gibt eine Wehrmauer und einen zentralen Turm.
+
+Vor der Stadt, außerhalb der Mauer, ist eine große Menge von Menschen, und ein großes weiß gerüstetes Wesen insbesondere: Dhoana von Toulon. Außerdem lärmt überall grässliche Musik.
+
+Wir sprechen Dhoana und fragen sie nach Vincent. Wir erfahren, dass die Stadt von den Candy Crushers eingenommen wurde. Die Hälfte der Bevölkerung ist vor der Stadt, der Rest innen als Geiseln. Isaac versucht derweil, von den Spitaliern hier vor der Stadt zu stehlen.
+
+Schnee tritt auf die Mauer, mit 5 Geiseln. Sie erkennt auch Tekk und droht, alle 20 Minuten eine Geisel zu töten - und sollte Tekk oder einer von uns etwas versuchen, dann tötet sie alle. Als Beweis tötet sie eine der Geiseln auf der Stadtmauer.
+
+Dhoana zeigt uns Helvetiker-Nahkampfkünste. Sie möchte, dass wir durch einen alten Schmugglerzugang in die Stadt gehen und dort unentdeckt die Apokalyptiker ausschalten. Tekks Hauptziele sind Spencer, Rosie und der Cache. Wir teilen uns auf - ein Teil klettert über die Mauer, ein Teil durch einen alten Schmugglertunnel (den schon Herr Dame benutzt haben soll!)
