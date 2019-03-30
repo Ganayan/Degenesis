@@ -21,3 +21,8 @@ Goldie schickt uns nach Turmstadt, wo wohl auch Spencer sei. Dort ist ein Cache 
 - 5 x 12 mm (Flinte)
 - 10 x 4,6x30 mm
 - 5 x 357er (Langlauf)
+
+Wir entscheiden uns dagegen, noch vorher zum Chronisten zu gehen, und entscheiden uns, das nach unserer Rückkehr zu tun. Wir haben unsere Ausrüstung sortiert - und noch einige Besorgungen gemacht. Uadjit muss noch mit Votur einen kleinen Umweg machen und eine Nachricht überbringen, sie stößt dann wieder zu uns und macht die Vorhug auf unserer Reise nach Turmstadt, die ca. 2,5 Tage dauert.
+
+Auf dem Weg dahin sehen wir einen Checkpoint, der mit 6 Richtern besetzt ist. Wir umgehen ihn. Auf unserem abseitigen Pfad sehen wir nördlich von Nyx einige merkwürdige, riesige Baumartige Monumente die mit Bändern verbunden sind, lassen sie rechts liegen und erreichen am Abend des zweiten Reisetages erschöpft Turmstadt.
+
