@@ -35,3 +35,17 @@ Wir sprechen Dhoana und fragen sie nach Vincent. Wir erfahren, dass die Stadt vo
 Schnee tritt auf die Mauer, mit 5 Geiseln. Sie erkennt auch Tekk und droht, alle 20 Minuten eine Geisel zu töten - und sollte Tekk oder einer von uns etwas versuchen, dann tötet sie alle. Als Beweis tötet sie eine der Geiseln auf der Stadtmauer.
 
 Dhoana zeigt uns Helvetiker-Nahkampfkünste. Sie möchte, dass wir durch einen alten Schmugglerzugang in die Stadt gehen und dort unentdeckt die Apokalyptiker ausschalten. Tekks Hauptziele sind Spencer, Rosie und der Cache. Wir teilen uns auf - ein Teil klettert über die Mauer, ein Teil durch einen alten Schmugglertunnel (den schon Herr Dame benutzt haben soll!)
+
+Wir sind die totalen Ninjas und meucheln alle Candys ab, die haben sowas von keiner Chance, es ist schon angemessen amüsant! Wir versammeln uns um den zentralen Turm, in dem wir Schnee vermuten.
+
+Spencer stieß während der Kämpfe zu uns. Wir scheinen alle beisammen zu sein. Tekk fand bei einem Candy eine Notiz an Gavriel, von Luca der ihn nach Turmstadt locken wollte.
+
+Unser Helvetiker stürmt den Turm und schießt auf wen auch immer da ist - und es ist Schnee, die Luca im Arm hält. Er tötet Luca. Schießt erneut, und mehrere Candy von der Galerie greifen Armand an. Uadjit versucht, sie zu stabilisieren. Gavriel schießt auf Armand der sich ergibt.
+
+Votur hilft beim Verarzten. Schnee sieht Luca sterben und holt aus einem Säckchen eine chitinartig glänzende Burn-Knospe hervor und inhaliert es. Votur schießt auf sie - Schnee weicht aus und wirft sie, mit übermenschlicher Kraft, durch den Raum.
+
+Danach gibt Schnee der sterbenden Luca von dem Burn. Sie hustet... ihre Blutung scheint zu stoppen. Schnee erhebt sich, stürmt nach draußem - zu Armand? Sie lässt ihn stehen - niemand hält sie auf, und sie verschwindet.
+
+Armand scheint sehr wütend über seine Fehlleistung und wird von allen gemieden. Ich sorge dafür, dass er den Turm nicht betreten kann - und drinnen ist Uadjit weiter bei Luca.
+
+Dhoana scheint entsetzt über Armands Aktionen, als Tekk sie konfrontiert. Sie gewährt uns Unterkunft in der Stadt für eine Weile.
