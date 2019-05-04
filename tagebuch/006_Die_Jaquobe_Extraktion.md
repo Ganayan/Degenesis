@@ -41,4 +41,22 @@ Eine Afrikanerin erwartet uns mit einem Speer. Hinter uns explodieren und brenne
 
 Liliago schlägt vor dass wir über die Dächer flüchten. Uadjit glaubt ihr nicht und konfrontiert sie nachdem sie mir nicht antwortet als ich fragte was sie hier tut. 
 
-Sie gesteht, dass sie noch für den Handelsprinzen arbeitet, aber nicht mehr lange, und Teil des Kornspeicherregiments ist. Eine ehrlose Abteilung. 
+Sie gesteht, dass sie noch für den Handelsprinzen arbeitet, aber nicht mehr lange, und Teil des Kornspeicherregiments ist. Eine ehrlose Abteilung. Uadjit konfrontiert sie weiterhin und wir planen wie wir da rauskommen. Vincent geht derweil schon mal aufs Dach.
+
+Liliago sagt, dass sie in dieser Kolonie ist um einen Gegenstand zu bergen mit dem sie ihren Mut beweisen kann. Es ist ein einer Sonnenscheibe ähnlicher Handschuhrüstungsgegenstand. Wir diskutieren und glauben ihr und folgen den anderen auf's Dach.
+
+Wir sind umzingelt von Burn-Opfern. Also unser Haus ist umstellt. Vincent lenkt durch einen Feuerpfeil ab, Liliago Kalikki und ich lenken die Aufmerksamkeit auf uns und rennen zum Meer. Der Rest rennt zur Stadt sobald sie abgelenkt sind. 
+
+Eine nackte Frau steht uns im Weg, und Kalikki ist erstarrt. Ich berühre sie und... bin weg. In einer Vision stehe ich auf einem Spiegel aus Wasser, da erscheint mir Luca, die zu mir kommt und mir erzählt, dass wir uns opfern müssen. Wir müssen sterben. Beide. Um hunderte, tausende zu erlösen. Sie altert neben mir, stirbt, kopiert sich, fleht mich an alles zu beenden. 
+
+Eine Feuerwalze rennt die Welt, droht mich zu verbrennen, ich tauche unter Wasser, ertrinke, werde von einem mechanischen Biest gefressen und erwache schließlich. Vor der nackten Frau. Am Strand. In einem Kreis der Burn-Opfer. Neben mir Kalikki - bewusstlos am Boden. 
+
+Die anderen sind erfolgreich geflüchtet. Eine Gasse zum Strand bildet sich. Ich trage Kalikki hinaus - wir werden nicht verfolgt. Wir schließen zu den anderen auf und ich weiß nicht was da geschehen ist. 
+
+Wir gehen ins Blaulichtviertel. Alles ist total überfüllt von Menschen, sie wirken wie zusammengetrieben. Von Richtern in Ketten gelegt. Acht Richter und Prokter Hugendorf.
+
+Wir schleichen uns alle in den Kontor - durch den Hintereingang, um den Wirt zu finden. Wir finden ihn, bereit sich zu töten. Wir halten ihn davon ab. Er ist sauer auf uns, beschuldigt uns und ist sauer, dass wir Schnee nicht ausgeliefert haben.
+
+Wir versuchen, den Wirt zu überzeugen. Wir alle arbeiten zusammen - Luca legt sich richtig ins Zeug. Wir spielen mit offenen Karten und erzählen von Turmstadt, Schnee und dem Plan, die Schaaren zusammen zu führen.
+
+Doch Luca versagt. Allerdings ist Jaquobe von sich aus gewillt mit zu gehen. Wir wissen nur nicht wie. Doch Kalikki hat einen Plan und teilt ihn mit Uadjit. 
