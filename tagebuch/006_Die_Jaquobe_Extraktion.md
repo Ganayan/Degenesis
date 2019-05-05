@@ -68,3 +68,7 @@ Taaki empfängt uns und freut sich uns zu sehen. Sie freut sich etwas zu bekomme
 Kalikki dreht es so als habe sie all das gebracht, und wünscht Taaki auf der Jagd zu begleiten. 
 
 Uadjit erklärt unsere Situation, und Taaki bietet uns Unterschlupf an, falls Vincent sie auf die Jagd begleitet. Der ist unsicher. Aber wir dürfen vorerst als Gäste bleiben. Vincent jedoch verlässt das Schiff.
+
+Ausblick: Wir bringen den Wirt zu Schnee, kommen alle nach Turmstadt und der Wirt beginnt seine Aufgabe. Tekk war leider vor uns schon da. 
+
+Es folgt eine Audienz bei Schnee: Sie hat keine Lust mehr die Schaaren zu vereinigen, ihr ist das alles zu abstrakt und langweilig. Sie schenkt uns Turmstadt und will ins Ödland für einen Rachefeldzug. Wenn wir sie treffen wollen, dann an den Zwillingen. 
