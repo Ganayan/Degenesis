@@ -60,3 +60,11 @@ Wir schleichen uns alle in den Kontor - durch den Hintereingang, um den Wirt zu 
 Wir versuchen, den Wirt zu überzeugen. Wir alle arbeiten zusammen - Luca legt sich richtig ins Zeug. Wir spielen mit offenen Karten und erzählen von Turmstadt, Schnee und dem Plan, die Schaaren zusammen zu führen.
 
 Doch Luca versagt. Allerdings ist Jaquobe von sich aus gewillt mit zu gehen. Wir wissen nur nicht wie. Doch Kalikki hat einen Plan und teilt ihn mit Uadjit. 
+
+Der Plan ist, ein paar Tage bei Taaki unterzutauchen. Wir nehmen die Wirt und noch 6 seiner Leute mit. Kalikki tut so als würde sie uns besitzen und zu Taaki gehen um dort ihren Gegenstand abzuliefern - das Rüstungsteil. 
+
+Taaki empfängt uns und freut sich uns zu sehen. Sie freut sich etwas zu bekommen - und Luca springt ein und sagt, dass Vincent der Jäger anwesend ist. Taaki wirkt davon beeindruckt. Und von dem Rüstungsteil. Und davon dass sie Luca bringt. 
+
+Kalikki dreht es so als habe sie all das gebracht, und wünscht Taaki auf der Jagd zu begleiten. 
+
+Uadjit erklärt unsere Situation, und Taaki bietet uns Unterschlupf an, falls Vincent sie auf die Jagd begleitet. Der ist unsicher. Aber wir dürfen vorerst als Gäste bleiben. Vincent jedoch verlässt das Schiff.
