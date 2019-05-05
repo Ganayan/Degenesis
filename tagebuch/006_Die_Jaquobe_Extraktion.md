@@ -72,3 +72,5 @@ Uadjit erklärt unsere Situation, und Taaki bietet uns Unterschlupf an, falls Vi
 Ausblick: Wir bringen den Wirt zu Schnee, kommen alle nach Turmstadt und der Wirt beginnt seine Aufgabe. Tekk war leider vor uns schon da. 
 
 Es folgt eine Audienz bei Schnee: Sie hat keine Lust mehr die Schaaren zu vereinigen, ihr ist das alles zu abstrakt und langweilig. Sie schenkt uns Turmstadt und will ins Ödland für einen Rachefeldzug. Wenn wir sie treffen wollen, dann an den Zwillingen. 
+
+Uadjit war derweil beim Handlesprinzen. Der will uns treffen, innerhalb der nächsten 22 Tage bei den Zwillingen.
